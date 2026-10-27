@@ -1,0 +1,3 @@
+-НИКНЕЙМ: <yuru_namnam>
+-ИНТЕРЕСЫ: [play like a dragon, sleep, watch maksim kac]
+-ЦЕЛЬ: [create new zapret]
