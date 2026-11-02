@@ -1,3 +1,4 @@
 - **Никнейм** diananaam28-ai
 - **Интересы** веб-разработка, изучение Git и GitHub
 -**Цель** научиться работать в команде и создавать крутые проекты
+lzlzllzlzllzllzlkzjfkhgkjhljdflnfkfjfvokkkkjkvdfbfbfbdffdfgftghyjvmvfkdjlgjkjmvkdjlkvjkvjvnvmjcjljcjxdkclsdvljsdjlkgjldfkjgvbdfvgdfgdfg
